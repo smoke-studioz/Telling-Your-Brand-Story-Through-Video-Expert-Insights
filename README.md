@@ -19,9 +19,9 @@ The foundation of your movie is your script. It ought to:<br>
 Create a script that strikes a balance between information and emotional appeal by collaborating with skilled directors and content writers from your <a href="https://www.smokestudioz.com/services" title="brand film production services" alt"brand film production services" >Brand Film Production Services</a> team.<br>
 <b>3. Arrange the Logistics of Production</b>
 <li>Talent Casting: Choose actors or presenters who exude genuineness.</li>
-<li>Organize the availability of talent, crew, and equipment.</li><br>
+<li>Organize the availability of talent, crew, and equipment.</li>
 To keep your project on schedule and within budget, Smoke Studioz's skilled producers take care of these details.<br>
-<b>4. Use a Cinematic Style</b>
+<b>4. Use a Cinematic Style</b><br>
 Excellent audio recording and cinematography are essential during production:<br>
 <li>Make use of high-end lighting, cameras, and lenses</li>
 <li>Use specialized microphones and recorders to capture clear, sharp sound.</li>
