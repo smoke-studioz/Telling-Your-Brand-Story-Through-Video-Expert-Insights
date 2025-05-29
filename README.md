@@ -15,7 +15,7 @@ The foundation of your movie is your script. It ought to:<br>
 <li>Present the main character (your client or brand).</li>
 <li>Offer a chance or a challenge.</li>
 <li>Present your value proposition or solution.</li>
-<li>Finish with a compelling, memorable call to action.</li><br>
+<li>Finish with a compelling, memorable call to action.</li>
 Create a script that strikes a balance between information and emotional appeal by collaborating with skilled directors and content writers from your <a href="https://www.smokestudioz.com/services" title="brand film production services" alt"brand film production services" >Brand Film Production Services</a> team.<br>
 <b>3. Arrange the Logistics of Production</b>
 <li>Talent Casting: Choose actors or presenters who exude genuineness.</li>
